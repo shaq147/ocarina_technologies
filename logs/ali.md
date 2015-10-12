@@ -1,3 +1,5 @@
+Week 3
+
 *Week 4, September 24th:*
 
  * Project proposal
